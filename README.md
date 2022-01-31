@@ -1,4 +1,4 @@
-📈Stats📈
+📈Statistics
 
 
 
